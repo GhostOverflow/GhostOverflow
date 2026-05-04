@@ -3,7 +3,7 @@ I break into things for the sake of understanding them. Web apps, Active Directo
 
 
 ### You can reach me at
-Discord: ghostoverflow
+Discord: [@ghostoverflow](https://discord.com/users/886616391472533606)
 
 
 
